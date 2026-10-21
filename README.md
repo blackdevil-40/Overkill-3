@@ -217,4 +217,4 @@ Overkill 3 is offered as a full free version with all features and updates inclu
 Don’t miss out on the action! Download Overkill 3 free today and take your place as a hero in a chaotic future!
 
 ---
-**Last updated:** 2026-10-20 21:00:18 UTC
+**Last updated:** 2026-10-21 00:14:03 UTC
